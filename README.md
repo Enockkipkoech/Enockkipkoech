@@ -10,5 +10,5 @@
 
 
 
-- 📫 Lets connect via slack: C02NTBS4FSQ, Telegram: @the_bug_around
+- 📫 Lets connect via WhatsApp: +254727641393 slack: C02NTBS4FSQ, Telegram: @the_bug_around
 
